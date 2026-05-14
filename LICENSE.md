@@ -1,4 +1,4 @@
-# 
+# smart Bot for pump.fun sniper bot | private-RPC-nodes & back-running offers the most advanced pump.fun sniper bot, with private-RPC-nodes and back-running. Ideal for professional
 
 
 
